@@ -3,8 +3,8 @@
 ![👍 NHL_👍](https://i0.wp.com/johnmjennings.com/wp-content/uploads/2021/08/cut-7329932.jpg?w=1080&ssl=1)
 
 ZuzzTv Is A New Platform To Watch Stream Online. Offers NHL, MLB, NFL, NBA, Boxing, MMA, Rugby, Golf, HorseRacing & F1 In One Package.  
-➤🔴🅻🅸🆅🅴📷➤ https://rb.gy/n4ewzp
-➤🔴🅻🅸🆅🅴📷➤ https://rb.gy/ka46n
+➤🔴🅻🅸🆅🅴📷➤ https://freenhlstream.com/
+➤🔴🅻🅸🆅🅴📷➤ https://nhllive.org/
 
 Skills: 👍 NHL_MLB_NFL_NBA_Boxing_MMA_Rugby_Golf_Horse Racing & F1👍
 
